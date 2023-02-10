@@ -1,2 +1,3 @@
 # BatchFileProgramming
-Sussy baka batch code
+Sussy baka batch code ( ͡° ͜ʖ ͡°)
+
